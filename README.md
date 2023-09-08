@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Vyiot
+- 👀 I’m interested in Aritfical Intelligence
+- 🌱 I’m currently learning at HCMC University of Technology and Education
